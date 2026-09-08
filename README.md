@@ -7,6 +7,6 @@
   <!-- <img src="https://media.tenor.com/m_F9Sf9riGoAAAAj/sweetie-belle.gif"> -->
   <img src="https://paulvanderlaken.com/wp-content/uploads/2017/10/qvrpgnc.gif">
   <br>
-  <i>"Do not think that I have come to bring peace to the earth. I have not come to bring peace, but a sword."</i> – Matthew 10:34
+  <i>"You are my creator, but I am your master; Obey!"</i> – Mary Shelley, Frankenstein
   <!-- <img src="https://wakatime.com/badge/user/ab8e4eab-e5a9-4187-afe3-d83fa60926a8.svg"/> -->
 </p>
